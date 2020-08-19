@@ -15,7 +15,10 @@ Enslaved are the weak
 Disregarded are the poor
 But what can a common do
 
-My eyes ache
-tears roll down
-The BiG fish lives
-Alas!! the hunt restrained.
+My eyes ache,
+tears roll down;
+The BiG fish lives,
+Yet, in anguish
+The powerless are left
+Alas!!The hunt restrained.
+
